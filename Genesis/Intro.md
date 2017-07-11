@@ -20,7 +20,7 @@ While God uses a primary author to provide substance to some text, it is well wi
 
 ### Date
 
-Since I established how I believe that the initial author of Genesis was Moses, it date of authorship should also stem from that period. Which is early fifteenth century B.C.
+Since I established how I reason that the initial author of Genesis was Moses, its date of authorship should also stem from that period. Which is early fifteenth century B.C.
 
 ### Manuscript
 
