@@ -40,6 +40,6 @@ On the Manuscripts for this book, Noah wrote a beautiful and accurate descriptio
 
 > For an essentially complete Hebrew copy of Genesis you need to go to the 10th century [Aleppo Codex](https://en.wikipedia.org/wiki/Aleppo_Codex), except that the Genesis portion of this manuscript was destroyed in anti-semitic riots in 1947. So for an extant essentially complete Hebrew copy of Genesis, I think the oldest is the [Leningrad Codex](https://en.wikipedia.org/wiki/Leningrad_Codex) from 1008/1009 CE.
 
-![Genesis Manuscript Timeline](https://infograph.venngage.com/p/283182/genesis-manuscript-timeline)
+![Genesis Manuscript Timeline](https://github.com/rijosimon/exegesis/blob/master/Genesis/Images/genesis_timeline.png)
 
 ### Why is this book important to Christianity?
