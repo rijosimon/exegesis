@@ -15,3 +15,33 @@ Yet Job receives this highest order of praise from God, in a world where redempt
 In the description of Job's standing before God, one thing becomes exceedingly clear. That to be called blameless and upright, one has to live in the all encompassing recognition of what it means to live a life fearing God. The fear of God doesn't result in a life of defeat and anguish. The fear of man will. Instead it results in a life of joy and peace. For when one fears God, they turn away from evil. And it is in the turning away from evil that one receives eternal joy and peace, which this world cannot offer. Because this word has taken after the way of the evil. Job was blameless and upright before God, because he feared God, and this fear of God lead him to walk away from evil.
 
 As much as Job's righteous walk confounds me, because of my own inability to do so. The fact that he fears God, clarifies the reason God and the Word can testify as such about him. It is the fear of God that has given him the wisdom to lead the life of a blameless and upright man.
+
+### The nature of Satan and his relationship with God.
+
+So far in the book of Job, we have a clear picture of two primary natures of Satan. He is the accuser and the adversary.
+
+> Does Job fear God for no reason? vs. 9
+
+Here we see Satan accusing God's servant of material reasons for fearing God. He is more than willing to be an adversary to God's servant to prove his accusations. However it is a matter of great comfort, that in being accusatory and adversarial, Satan doesn't affect God, in that it doesn't cause Him doubt or confusion. God is not doubting Job's righteousness and his fear of Him. God instead is challenging Satan's unfounded accusation. God is not moved by Satan's unfounded accusations, like we Humans may be.
+
+> But stretch out you hand and touch all that he has, and he will curse you to your face. vs. 11
+
+On the other hand Satan is very confident in his accusations. He believes that the adversity he brings about is substantial enough to disprove God's testament regarding Job, and make God a liar. Why doesn't Satan recognize that God can never be the liar? This lack of understanding of who God is, and this lack of reverence towards God's sovereignty is the root cause of Satan's fall. It is a lesson for us that we shouldn't do anything that is irreverential towards God's sovereignty. I pray that we shall not entertain any thoughts, any ideas or partake in any actions that question the reverence and subjection that God's sovereignty deserves in our life.
+
+> Now there was a day when the sons of God came to present themselves before the Lord, and Satan also came among them. The Lord said to Satan, "From where have you come?" Satan answered the Lord and said, "From going to and fro on the earth, and from walking up and down on it." vs. 6-7
+
+> And Lord said to Satan, "Behold, all that he has in in your hand. Only against him do not stretch out your hand." So Satan went out from the presence of the Lord. vs. 12
+
+From these passages we learn some interesting facts about Satan's interaction with his creator, his relationship with God:
+
+1. Satan and God don't exist is separate silos, there is a communicative relationship between them. Satan is in an interactive relationship with God. They are definitely not equals. For it is Satan who comes to God's throne to present himself. Satan is painfully cognizant of the fact that he is under the sovereignty of God.
+
+2. Continuing from above, Satan is not a free agent. He doesn't interfere in the world, as he desires. All that he does requires the explicit permission or allowing of the creator of the Universe. He has no free reign over anything that is God's. God doesn't allow Satan's reprobation, because it is his will, but because in allowing Satan's reprobation, God's holiness is glorified. For despite Satan's accusatory and adversarial intrusion, God is sovereign over what is His. Job is God's and no amount of effort on Satan's part can take away from God's testimony about him or make Him a liar.
+
+3. Satan still goes to and fro on the earth and walks up and down on it. He does it to accuse and intrude. And he does so to disprove God as Holy, Glorious and Truthful. For his intrusive acts of accusation and adversity are thrust against those that fear the Lord. It is this very nature of Satan, the devil, that Peter warns the Christian of in 1 Peter 5:8:
+
+> Be sober-minded; be watchful. Your adversary the devil prowls around like a roaring lion, seeking someone to devour. 1 Peter 5:8
+
+Satan is constantly accusatory and he wants to devour us in the process of proving his accusations. In accusing us, he desires to accuse God of attributes that are not Him. In being constantly watchful of these tactics of the devil, we add to the Glory of God.
+
+I pray God helps me learn the tactics of our eternal enemy, and that he solidifies my trust in God's sovereignty and hence trust in God to be fully in control of all my circumstances.
