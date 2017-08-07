@@ -34,7 +34,7 @@ On the other hand Satan is very confident in his accusations. He believes that t
 
 From these passages we learn some interesting facts about Satan's interaction with his creator, his relationship with God:
 
-1. Satan and God don't exist is separate silos, there is a communicative relationship between them. Satan is in an interactive relationship with God. They are definitely not equals. For it is Satan who comes to God's throne to present himself. Satan is painfully cognizant of the fact that he is under the sovereignty of God.
+1. Satan and God don't exist in separate silos, there is a communicative relationship between them. Satan is in an interactive relationship with God. They are definitely not equals. For it is Satan who comes to God's throne to present himself. Satan is painfully cognizant of the fact that he is under the sovereignty of God.
 
 2. Continuing from above, Satan is not a free agent. He doesn't interfere in the world, as he desires. All that he does requires the explicit permission or allowing of the creator of the Universe. He has no free reign over anything that is God's. God doesn't allow Satan's reprobation, because it is his will, but because in allowing Satan's reprobation, God's holiness is glorified. For despite Satan's accusatory and adversarial intrusion, God is sovereign over what is His. Job is God's and no amount of effort on Satan's part can take away from God's testimony about him or make Him a liar.
 
