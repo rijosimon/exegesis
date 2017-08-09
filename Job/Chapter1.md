@@ -44,4 +44,26 @@ From these passages we learn some interesting facts about Satan's interaction wi
 
 Satan is constantly accusatory and he wants to devour us in the process of proving his accusations. In accusing us, he desires to accuse God of attributes that are not Him. In being constantly watchful of these tactics of the devil, we add to the Glory of God.
 
+#### Prayer:
+
 I pray God helps me learn the tactics of our eternal enemy, and that he solidifies my trust in God's sovereignty and hence trust in God to be fully in control of all my circumstances.
+
+### Worshiping God when calamity strikes.
+
+As we read on, how in his adversarial efforts, Satan is permitted by God to strike a blow at Job, the calamity that befalls him is unimaginable. I wonder what my response would be if I lost every last one of my worldly possessions and every last one of my children, in tragic ways, in a single day. I would most definitely would approach God with a sense of unfair treatment towards me. Worshiping God may not be on the top of my list either. And this is exactly why Job strikes me unfamiliar in his response here.
+
+Job not only approaches God, through these circumstances, to worship and adore him, but with a humble heart and head.
+
+In this time of humiliation and grave calamity, Job gives the best rendition on God's absolute sovereignty over his life:
+
+> Naked I came from my mother's womb, and naked shall I return. The Lord gave, and the Lord has taken away; blessed be the name of the Lord. vs. 21
+
+What is fascinating for me is not that he has this understanding of who God is, but rather that he is able to keep this in perspective in this midst of the calamity that has befallen him. My experience so far has been: an inability to keep the divine nature of God in the center of my thoughts, when I face what is hard and intolerable. I am jealous of Job's response, and wish to cultivate the same in my life. I wish to be fully aware of who God is to me, in the midst of both suffering and joy. Everything I have God has provided, so do I have any right to complaint in my losses.
+
+This understanding of God, I believe is central to responding through life's circumstances the same way Job does, in Worship.
+
+#### Prayer:
+
+My prayer is Lord that I may worship you through all. Through the good times and the bad. I want to be aware of who you are to me, even in the moments when I am not able to, on myself. I want to depend on the Holy Spirit to make the reality of God as sovereign an all encompassing reality of my life.
+
+I want to worship God with a contrite spirit, as Job did, when calamity strikes.
