@@ -22,4 +22,12 @@ And as Job suffers evil from God, so that God's name be glorified, Satan uses hi
 
 > In all this Job did not sin with his lips. vs. 10
 
-### 
+What does the scripture mean when it puts in Job's mouth the following words:
+
+> Shall we receive good from God, and shall we not receive evil. vs. 10
+
+The implication that evil can also comes from God could be confounding for some. But let us not explore this verse in isolation, instead let us study the premise of this statement. Truly evil has come to Job. But when Job claims that he has received evil from God, I don't believe it suggests that God is the source of this evil. It is clear from the story that Satan, the adversary, is cause of this evil, though God has allowed it. Does Job then mistakenly believe that God caused evil in his life. Instead when Job tells his wife that the evil he has received is from God, he means to acknowledge God's sovereignty.
+
+All good emanates directly from the throne room of God, and he is fully in control of it. All evil emanates from the heart of Satan, for he is an adversary to mankind. But this doesn't negate the sovereignty of God. He is still in control through the evil. Job in recognizing this nature of God, that He is in control through both good and evil, shows the deep roots of his faith.
+
+###
