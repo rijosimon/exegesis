@@ -2,13 +2,13 @@
 
 ### The ramblings of a depressed man.
 
-Job is clearly depressed at this point. The burden of his adversity seems to start to get to him. He hasn't yet derided God, or sinned against Him. But neither is he at this point a stoic man submissive with heart and spirit to God's will in his life. Instead he complains about the travails of life, and how if certain measures were in place, he wouldn't have to go through all this.
+Job is clearly depressed at this point. The burden of his adversity seems to be starting to get to him. He hasn't yet derided God, or sinned against Him. But neither is he at this point a stoic man submissive with heart and spirit to God's will in his life. Instead he complains about the travails of life, and how if certain measures were in place, he wouldn't have to go through all this.
 
 He moans about:
 
 1. The day he was born. (vs. 1-10)
 2. Death not taking him the day he was born. (vs. 11-19)
-3. Life given by God to a man who cannot take it anymore. (vs. 20-23)
+3. God's gift of life to a man who cannot take it anymore. (vs. 20-23)
 
 ### 1. The day he was born.
 
@@ -68,4 +68,40 @@ And from this definition I decipher the starkest contrast between Job's expectat
 
 Why is this understanding of death and its aftermath so important for a Christian? For without a strong desire for the presence of God in His forthcoming Kingdom, a Christian will never fully appreciate the what is offered to Him. If Eternity is only about what is absent, pain and suffering. Sorrow and sin. Then Eternity simply becomes a escape from the tribulations of this life. Instead if Eternity is about the entering into a new life, where God's presence and His glory is the all encompassing reason for your existence, it stops being a escape and starts being an eternal Home.
 
-    
+### 3. God's gift of life to a man who cannot take it anymore.
+
+Job now questions God's sovereignty in challenging His decision to give and sustain life for those who either don't desire it, or find it miserable.
+
+> Why is light given to him who is in misery, and life to the bitter in soul, who long for death, but it comes not, and dig for it more than for hidden treasures, who rejoice exceedingly and are glad when they find the grave? Why is light given to a man whose way is hidden, whom God has hedged in? (vs. 20-23)
+
+Job describes two kinds of men here. One who think of death as a treasure, as a precious gift. Something they long for and will rejoice exceedingly on finding. This life is no doubt a crucible of pain and suffering. It is filled with misery and bitterness. But seeking an untimely death as an escape to it, is beyond the will of God in our lives. God's desire for us is to live the life given to us with complete submission to his provision to sustain every moment of it and meet our ultimacy in life with joy towards what is beyond it. In complaining about the length of that life preordained, we grumble against Jehovah Jireh and in seeking death before it is declared by the heavenly majesty we challenge God's provisions for our lives. Our life for the entirety of it is a gift, and God desires for us to treasure it for its length, but not above himself.
+
+The second kind of man is he who desires death because his 'way is hidden' and whom 'God has hedged in'. This refers to a man who is confused and desolate in his life. He has lack of clarity as to where he is going. Also he feels like God has placed limitations to the possibilities of his life. But once again death is not the solution to either. For one that doesn't place their faith in God, death in not an escape from uncertainty, rather it is stepping into more of it. The way to find direction in life is in seeking it from God. Without fail trusting in God for direction is cornerstone to a life of faith. Sometimes this direction isn't clear. Sometimes there is too much fog ahead of us. But the light that hangs from the cross shines bright enough to guide us through the thickest fog. Rather than getting confounded by the fog, let us focus on this light, and walk towards it at all times. Sometimes God doesn't reveal the entirety of a plan till His time. Faith is the element that helps us trust God for being in charge of the grand plan. We can trust in Him to be in control of our life and that he has laid out a direction for us. We have to trust in Him for His counsel to stand from the beginning to the end of our lives.
+
+> "...declaring the end from the beginning and from ancient times things not yet done, saying, ‘My counsel shall stand, and I will accomplish all my purpose,’" (Isaiah 46:10)
+
+If we serve a God who is Sovereign over all things, seeking an untimely death is going against the glory of His majesty.
+
+### Job's fears have come true.
+
+Job does two things from vs. 24-26. One he declares in brief the state of his heart.
+
+> For my sighing comes instead of my bread, and my groanings are poured out like water. (vs. 24)
+
+In other words grief and complaining about his state has become staple for him. This is a period in which a Christian finds himself/herself often. Despite the promises of the Lord, when a Christian faces calamities and tribulations, he or she often finds themselves complaining about their circumstances. And since I have witnessed this in my own life I have always wondered why it is so. Job has offered us a clue to answer this question in vs. 25, but before that let me roundup Job's state of heart with how he describes it in vs. 26
+
+> I am not at ease, nor am I quiet; I have no rest but trouble comes. (vs. 26)
+
+Job describes his heart as restless. His heart is constantly bringing about the realities of his circumstances before him. He finds no rest in this world because all this world offers him is trouble, one after the other.
+
+But why is this the state of Job's heart, a man who knows God and trusts in Him? Why doesn't Job rests his heart in God, and not worry about his state in the World? I think the clue that answers this question is vs. 25
+
+> For the thing that I fear comes upon me, and what I dread befalls me. (vs. 25)
+
+Even before God allowed Satan to be an adversary to Job, he lived in fear. We don't know the details of this fear. But it could have been either the loosing of his property or children or his health or even the relationship with his wife. Whatever he feared, has come upon him, and it is this that has made him extremely distressed.
+
+Job has lived for almost all his life in fear of certain calamities, and now God has allowed them in his life. This makes me wonder, what are the fears that I live under. The fear of being alone, the fear of losing my worldly status, the fear of being bankrupt, etc. Whatever they are, they show a side of our hearts that is unique. We fear to lose what we invest in. What we get for free we don't fear to loose as much, or we don't value them as much. But what we believe we have gained on our own, and on which we place even a part of our hope on, we fear greatly to lose. A Christian's call is to a life where the only thing that he or she treasures, and the only thing which he or she should fear of losing is the Kingdom of God. But the Kingdom is assured by the work of the Holy Spirit. Hence for a Christian there is nothing that can happen in this world that should worry them.
+
+But more often than not, this is not the case. More often than not we don't invest our whole being into the hidden treasure and the precious pearl that the Kingdom of God is in Mathew 13:44-45. It is because we do invest in things of this world. In our work, in our worldly possessions, our relationships etc. But then we do put so much of our time and effort into them, then how are we expected to not be attached to them.
+
+This is why a Christian should look forward to suffering in their life. Because through suffering God sovereignly works in our life to help us focus on and rest on what is most important. Suffering is God's way of teaching us that we are sojourners, that what we have in this world is temporary and that when the cares of this world bog us down, the eternal hope of the Kingdom of God is sufficient to find joy in what the world consider desperate conditions.
