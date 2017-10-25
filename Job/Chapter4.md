@@ -2,9 +2,9 @@
 
 ## Can mortal man be in the right before God?
 
-### What is confidence? What is my Hope?
+### What is my confidence? What is my Hope?
 
-Isn't it true that many times we see in our own lives, that it is easier to console others in the Lord, when they go through their adversity. But in the midst of our own share of it, we are scattered, our peace  is lost and hope is not found.
+Isn't it true that many times we see in our own lives, that it is easier to console others in the Lord, when they go through their adversity. But in the midst of our own share of it, we are scattered, our peace is lost and hope is not found.
 
 From the picture that Job's friend Eliphaz the Temanite paints, we get a similar peak into Job's life. Job has been an instructor to many. He has touched so many lives when it comes to strengthening the weak, upholding those that stumble.
 
@@ -22,4 +22,4 @@ Fear of God -> confidence.
 
 Integrity of your ways -> hope.
 
-One may ask, how the fear of anything would bring about confidence? <Meditate on why the scripture says that the Fear of God, brings confidence.>
+One may ask, how the fear of anything would bring about confidence? <Meditate on why the scripture says that the Fear of God, brings confidence.
